@@ -1,0 +1,1 @@
+# Latex_Afanin-Daniya_23030630025
